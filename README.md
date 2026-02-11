@@ -5,7 +5,7 @@
 
 Here are some ideas to get you started:
 
-- 🔭 I’m currently studying on ... ENCiT
+- 🌎:books: I’m currently studying on ... ENCiT
 - 🌱 I’m currently learning ... ambiental science 
 - 👯 I’m looking to collaborate on ...
 - 🤔 I’m looking for help with ...
