@@ -10,6 +10,6 @@ Here are some ideas to get you started:
 
 - 💬 Ask me about ...
 - 📫 How to reach me: ... secret  
-- 😄 Pronouns: ... she/ her
+- 😄 Pronouns: ... she
 - ⚡ Fun fact: ... i love nature and animals 
 -->
