@@ -1,4 +1,4 @@
-## Hi there 👋
+## Hi, i´m Angélica :heartpulse:
 
 
 **angely0694/angely0694** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
